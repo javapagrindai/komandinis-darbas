@@ -1,1 +1,2 @@
 # komandinis-darbas
+jhsajsjdajk
